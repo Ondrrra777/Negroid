@@ -1,0 +1,2 @@
+# Negroid
+Negroidství
